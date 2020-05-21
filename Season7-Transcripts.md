@@ -1075,3 +1075,590 @@ Mark: Well Gerard admitted that sometimes he looks at them and does, uh...
 Dobby: Ugh!
 
 Mark: I know. (Never pick a fight with Stalin, Gerrard. Uncle Joe don't play by your rules.)
+
+#A Beautiful Mind
+Mark: (Sex over, now the smiling and staring. I think Dobby might be bored with me sexually. I'm vanilla. I should be, not Neapolitan, that's too '70s, but pistachio, slightly unpleasant but novel.) I was thinking of booking that country house hotel for your birthday.
+
+Dobby: Really? 'Cause country house hotels? I mean, doesn't working in a Mexican restaurant mean we'd be better suited to a Premier Inn and a bottle of supermarket voddy? Or I could pay?
+
+Mark: No way! I'm being the man here and paying for everything. I'm taking you away. I might even carry you over the threshold.
+
+Dobby: Okay, Captain Caveman.
+
+Mark: Would you be able to drive us? It's in Hereford.
+
+Dobby: Sure. Shall I get it seeing as I've got your fluffy dressing gown on?
+
+Mark: Thanks. (Officially it's a toweling robe. Might not be incredibly stylish, but it is hugely absorbent.)
+
+Dobby: Oh, did I tell you? Poor old Simon's mum's ill.
+
+Mark: How horrible for him.
+
+Dobby: I might get a card.
+
+Mark: (The cool, good looking ex-boyfriend whom I strongly suspect was far better in bed than me. His grief is mine.)
+
+Dobby: You got some money Mark?
+
+Mark: Hang on. (Must be the Barnardo's man.)
+
+Dobby: He's unemployed, Mark.
+
+Mark: Right. (Is he though? I'm pretty sure I saw this exposed on Rogue Traders.)
+
+Door-to-door Seller: Just trying to make a bit of honest money, really. Your neighbors have been very kind.
+
+Mark: So what have you got?
+
+Door-to-door Seller: Fluffy dusters, J-cloths ...
+
+Mark: (Shit, okay don't choose the cheapest in front of Dobby. So not J-cloths. Not scourers. Fluffy dusters? I think they're relatively cheap.)
+
+Door-to-door Seller: Or oven gloves.
+
+Mark: Fluffy duster?
+
+Door-to-door Seller: Sure mate, they're 11 pound.
+
+Mark: They're what?
+
+Dobby: 11 quid, made of fibers.
+
+Mark: (I'm being politely mugged!)
+
+Door-to-door Seller: Thanks.
+
+Dobby: I'll go and make some coffee, Mr. Generous. I'd have just gone for the J-cloths.
+
+Mark: (Great, just wasted 11 pounds on four pounds worth of female approval.) Right, I'm having that back. You've conned me, I'm not some frail old lady in sheltered housing.
+
+Door-to-door Seller: Get to fuck!
+
+Dobby: Are you okay?
+
+Mark: It's fine. Things got a bit out of hand but I took control.
+
+Zahra: So what did you think, Jeremy?
+
+Jeremy: Wow. That's what I thought, wowsers trousers.
+
+Zahra: You didn't fall asleep, did you? At one point I thought--
+
+Jeremy: No way, no. I loved every minute of it. The colors, the woman, the... It was all great. Amelie is a fantastic film. What a fantastic film.
+
+Zahra: Yeah. It's French but you can easily work out what's happening most of the way through.
+
+Jeremy: Exactly.
+
+Zahra: Not pre-digested Hollywood blockbuster crap.
+
+Jeremy: That shit, trying to lure you in by entertaining you. It's so shallow. Are you cabbing it?
+
+Zahra: I'm cabbing it.
+
+Jeremy: (Won't tell her I'm busing it.) It's great isn't it how, even though I'm an attractive guy and you're an attractive girl, we can just hang out like great mates.
+
+Zahra: Yeah, just 'cause I'm going out with Ben--
+
+Jeremy: (The shit.)
+
+Zahra: Doesn't mean that you and I can't be big buds. I mean we have so many interest in common. Foreign film, fringe theater, contemporary dance. Even those silver people in Covent Garden who stand really still and pretend to be statues.
+
+Jeremy: I adore enormously all of that. And you run that book group, don't you? Which is great because I love difficult literature.
+
+Zahra: Wow! Another tick! I'd invite you, but we're full up at the minute.
+
+Jeremy: Does Ben, (the shit), go?
+
+Zahra: No, he hates reading.
+
+Jeremy: Oh, he is missing out on so much.
+
+Zahra: Uh-huh.
+
+Jeremy: I mean so many people just plod through life, you know, thinking the same stupid thoughts with their tiny, predictable, identikit minds.
+
+Zahra: Most people just go around nodding to the last opinion they heard, don't they?
+
+Jeremy: I agree.
+
+Taxi Driver: Excuse me Meltham, is one of you getting in?
+
+Jeremy: Bye then.
+
+Zahra: Bye. Thanks, for a lovely afternoon of French cinema. Au revoir mon ami.
+
+Jeremy: Indeedy. (This is all so fucking sophisticated.)
+
+Zahra: See you tomorrow. À demain
+
+Jeremy: No, you da man. (Why is that funny?) And you're off it all? Crack as well? But you love crack, it's your favorite!
+
+Super Hans: Especially crack Jez. I've stopped putting all of that poisoning shit into my body and my precious brain.
+
+Mark: Since when?
+
+Super Hans: Since Tuesday. Had a sort of Road to Damascus flash on the A22. Crashed the van into some guy's hedge 'cause I was so fucking wrecked. And then this voice in my head, sounded like Brian Moore, used to do the football on ITV, said pack it in son, mug's game.
+
+Mark: Well that's very sensible, albeit hallucinatory advice.
+
+Super Hans: Mark, I um... In here is my pipe and my last rock. I want you to have it.
+
+Mark: I don't want it, it's illegal!
+
+Super Hans: I want you to keep it, please. It's symbolic. And if I come to you and ask for it, I want you to tell me no, okay?
+
+Mark: Okay.
+
+Super Hans: Even if I hit you. Hard, with wood. Or grab your arm and bend it up behind your back till it snaps like a fucking Kit-Kat, you still tell me no, right?
+
+Mark: With wood?
+
+Super Hans: Thanks Mark. Legend.
+
+Jeremy: So how's all this going?
+
+Super Hans: Easy man. Easy like a Sonntagmorgen. I'm just finding other things to fill my time.
+
+Jeremy: Like what?
+
+Super Hans: Cycling, running. I ran 10K yesterday. I ran here this morning. Then back home and then back here again. I'm cooking, knitting, knitting like a fucking electric nan. Did this scarf. I've got two quilts on the go and a sort of tabard. It's cool. It's easy!
+
+Jeremy: Great.
+
+Super Hans: You got any olives? I've gone fucking mental for olives.
+
+Mark: No we--
+
+Super Hans: Shit. Jesus, where am I gonna get olives? I'm craving the salt.
+
+Mark: We've got salt.
+
+Super Hans: I'm not gonna go nicking fucking salt straight from the shaker, Mark. I'm not mad. Right, fucking laters. I'm gonna sprint to Londis.
+
+Jeremy: He is a bit mad, isn't he?
+
+Mark: Jez, I'm slightly worried that Dobby might still be in love with Simon.
+
+Jeremy: Yeah.
+
+Mark: Do you mean yeah, you think she is?
+
+Jeremy: No, no, I mean yeah, I'm not really listening, sorry.
+
+Mark: And I'm worried that I might not be...
+
+Jeremy: What?
+
+Mark: Look, you know the actual, the act of intercourse?
+
+Jeremy: Oh my God, you're asking me for sex tips. Pass me the Cava and the big pack of Tyrell's, it's a girls night in.
+
+Mark: What would you say was the average amount of time before the man...
+
+Mark: Unleashes hell?
+
+Jeremy: Yes. I want the average amount of time, the mean. No, the mode or median. Sting's probably thrown the mean out for everyone else.
+
+Jeremy: Well, it depends Mark. It often depends on, you know, where you are, if you get me.
+
+Mark: No, I don't wanna hear about the bum Jeremy. I know for you it all revolves around the bum, you're like the Copernicus of the anus.
+
+Jeremy: You've got to know about the bum, Mark, otherwise it's like only cooking with the hob and never using the oven. The bum is the secret portal.
+
+Mark: It's not much of a secret though, is it, Jeremy? Be honest, the bum is quite, if you'll pardon the image, an open secret.
+
+Jeremy: So you think you've lost your dirty mojo?
+
+Mark: Yeah, I am a bit desperate on that front. I mean I've even bought a...
+
+Jeremy: What?
+
+Mark: Nothing.
+
+Jeremy: A what, Mark? Blimey.
+
+Mark: It's a dildo. I've bought a big dildo.
+
+Jeremy: How big is it?
+
+Mark: Nine inches. It's a nine incher. Thought it might spice things up. Trouble is, I find it quite intimidating, as a man. I mean look at it, it's like a leg of lamb. So I've decided to call it Kenneth, to take the curse off.
+
+Jeremy: Kenneth?
+
+Mark: Yes, my colleague, Kenneth. Shall I fetch Kenneth? Meet my sexual associate, Kenneth. Makes him less daunting.
+
+Jeremy: And has Kenneth seen action?
+
+Mark: No. I mean, it might be the sexiest thing ever or it might be a massive disaster. Dobby might hate it. So for now you stay at Brize Norton, Kenneth. I don't think you're ready to enter Helmand yet.
+
+Jeremy: So is your work still- (Good, bad, does he like it there now? I've forgotten.) You know.
+
+Mark: I despise every second of it. We're short staffed and Gail keeps making me do these extra shifts. And she hates me since you tried to kill her.
+
+Jeremy: Yeah, sorry man, my bad. You should tell her you need time off. I mean I'm no NHS Direct, but this stress can't be doing your sex life any good. Tell Gail she's exploiting you.
+
+Mark: But then she'll fire me. I don't want to be unemployed, I've got a girlfriend to impress. And when Sophie gets back from Wales, I've also got a baby to impress.
+
+Jeremy: Christ, Mark, you really need to grow a pair.
+
+Mark: Of testicles?
+
+Jeremy: Yes.
+
+Mark: You want me to grow a pair of testicles so I'd have four testicles and somehow that'll help make me braver and better able to deal with stress? Staggering around like a baboon with four balls hanging down.
+
+Jeremy: Look, Gail's fucking you over because you're so bloody passive. You need to rip her a new one.
+
+Mark: A new anus? So she'd have two anuses? And then in this mad new world of yours I'd presumably shove my four bollocks up her two anuses for some unknown reason.
+
+Jeremy: Never fancied a girl with glasses before. I wouldn't care if she had a limp or a funny elbow. I'm so PC. I'm horny Gandhi.
+
+Ben: Did you have a nice time at whatever the fuck film it was with Zahra?
+
+Jeremy: Yeah, nice movie. The colors, the woman in it.
+
+Ben: It's a great arrangement we've got here Jez.
+
+Jeremy: Arrangement?
+
+Ben: Yeah, you take care of the brainy, artsy crap she likes and I take care of the physical side. Like when she came back from Emily.
+
+Jeremy: Amelie. (You shit.)
+
+Ben: She was in this really good mood, all sparked up and receptive. You can imagine what we got up to.
+
+Jeremy: Yeah, shall I order that toner from the Viking Catalog or?
+
+Ben: Now, I won't go into detail about what it is we did, Jez, but let's just say it wasn't a long game of Scrabble. Your glans isn't red raw after a long game of Scrabble is it?
+
+Jeremy: Not ordinarily, no.
+
+Ben: You don't fancy Zahra, do you, Jez?
+
+Jeremy: No.
+
+Ben: Because that would be an extremely huge problem if you did.
+
+Jeremy: I really don't, she's just normal. You know, like trifle or the pavement. Just there.
+
+Ben: Well anyway, I was wondering if you wanted to dabble in a bit more A and R, check out some artists, few extra quid in your pay packet.
+
+Jeremy: Brilliant. (Stop making my lovely job lovelier, you shit.)
+
+Zahra: Did Ben just give you a pay rise?
+
+Jeremy: Yeah. Yeah, you know, I honestly never thought I could enjoy working because obviously, when you work you can't go back to bed until night time, which seems mad, but I really like it.
+
+Zahra: I'm going to the Tate Modern for the Richard Avedon symposium on Friday. I don't suppose you fancy coming?
+
+Jeremy: Yeah, sure. I mean I was gonna go myself anyway on Sunday, but yeah, let's go together. (Jesus Christ I am so out of my depth. Who's Richard Avedon? What's a symposium? At least I know which day Friday is, that's something to cling onto.)
+
+Mark: (Tension headache. Brain tumor maybe? Sexy, fascinating, roguish brain tumor? Not with my luck. I think I will ask Gail if I can take some time off.)
+
+Gail: Mark what are you doing? You're needed. Order for that table of teenage piss-tards?
+
+Mark: Right. Gail, when you've got a second, later maybe, I was wondering whether my taking some holiday might--
+
+Gail: Mark, we're two chefs down. Abigail's got Norovirus, Marik just took the tip of his little finger off right on the eve of his sister's wedding. Coincidence?
+
+Mark: Erm--
+
+Gail: So this is not the time for you to ask to skive off. Jesus!
+
+Mark: (Good to get that out in the open. At least I know where I stand now. I'm precisely where I was a second ago, but quite a bit more upset. Shit, it's the rogue trader. I wonder if his dish perchance cost 11 pounds.) Enjoy your meals. (Just keep walking, Mark.)
+
+Door-to-door seller: Oi!
+
+Mark: (And now walk back Mark.)
+
+Door-to-door seller: I never ordered this.
+
+Mark: I think you did, burritos deluxe?
+
+Door-to-door seller: No, a burritos Mexicano with jalapeno sauce. Do I know you?
+
+Mark: No. Oh, right yes, I'm afraid my colleague who took your order must have made a mistake so--
+
+Door-to-door seller: Don't blame her. For fuck's sake, man up, you're the one who brought the wrong food.
+
+Mark: True, but I was only following orders. (Like Vince Cable.)
+
+Door-to-door seller: Don't blame a woman you piece of fucking dirt, now fuck off back to that kitchen and get me what you should have done the first time, mug.
+
+Mark: (Fine, right, fine. Okay great, you want the jalapeno sauce, mate? Well, you can have the jalapeno sauce. But with my hot, yellow piss in it. Yeah, see how you like this. I can't go! I can't piss! Come on bladder, please let me piss in the sauce!)
+
+Gail: Mark?
+
+Mark: Am I sacked? Should I go? I bet I'm sacked. Dobby will definitely dump me now.
+
+Jeremy: No she won't.
+
+Mark: She's got a special look of pity for unemployed people. Like this.
+
+Jeremy: I'd say that was more sympathy or empathy. One of the pathies, the pathies are nice.
+
+Mark: Anyway, we won't be able to go away for her birthday now. We'll be stuck here with own brand couscous and Wallander.
+
+Jeremy: Don't worry! Zahra says we have only one thing to fear and that's fear itself. It's a clever saying, isn't it?
+
+Mark: And what about loosing all your money? Or shitting yourself in public? Or the tabloid press mistakenly outing you as a pedo? Or Alzheimer's? Or all of those things plus you're drowning?
+
+Jeremy: It's a clever saying, though, isn't it?
+
+Mark: Oh Jesus, you're in love with Zahra, aren't you? You shouldn't be in love with her, Jeremy, you're playing with fire.
+
+Jeremy: No, I'm not! I'm playing with the opposite of fire.
+
+Mark: Water?
+
+Jeremy: Exactly, thank you. Because yeah, obviously I fancy Zahra, but I want to keep my nice job so I've decided to just be in love with her mind. A pure, modest, beautiful love. And then possibly have a wank when we're Skyping. Hans.
+
+Super Hans: Jez, you need to come and get me.
+
+Jeremy: What's happening?
+
+Super Hans: I've accidentally run to Windsor.
+
+Jeremy: What?
+
+Super Hans: Yeah, I've mistakenly run to Windsor.
+
+Jeremy: But that's like in Scotland or something isn't it?
+
+Super Hans: I didn't mean to, it's just the endorphins kicked in and I couldn't stop.
+
+Jeremy: Okay, well find some polythene or something to pull over yourself and a bit of waste ground and I'm sure you'll feel fine in the morning.
+
+Super Hans: My legs are gone, man. I'm a jelly! I'm paralyzed! It feels fucking brilliant.
+
+Jeremy: (God, I fancy you. Shall I make a move? I'll lose my job. I like my job. Why can't I have everything I want all the time? Isn't that democracy?)
+
+Zahra: This is a great book. I adore magic realism don't you?
+
+Jeremy: Love it.
+
+Zahra: You know, guys don't usually get it as a genre.
+
+Jeremy: Mm.
+
+Zahra: But why am I not surprised that you would?
+
+Jeremy: (Okay, here goes.) I've been reading a very brilliant novel lately.
+
+Zahra: Yeah?
+
+Jeremy: Yeah, it's about a man and a woman, it's not set here, it's set out in Iran.
+
+Zahra: Oh.
+
+Jeremy: And the woman, she's with someone else who is the man's um, not boss, but his baseball coach. Yeah, and he really wants to stay in the baseball team, the man, but he also really wants to get together with the attractive woman. It's a great book.
+
+Zahra: What's it called?
+
+Jeremy: Baseball Man.
+
+Zahra: Right, I've just gotta call round my book group guys, Paul's ill and can't host it and Ben's holding his poker game at mine.
+
+Jeremy: Well you could have your book group at my place and I could fill in for Paul.
+
+Zahra: You'd have to read the book pretty quickly.
+
+Jeremy: No worries. (Hope its Mr. Nice. I've read Mr. Nice.)
+
+Zahra: It's Wuthering Heights.
+
+Jeremy: (Right, doesn't sound like another Howard Marks book, but fingers crossed.) Ah, brilliant.
+
+Zahra: Great then! Okay well, why don't we...
+
+Jeremy: (Fuck hard right here and then kill Ben?)
+
+Zahra: Grab a coffee?
+
+Jeremy: Super!
+
+Mark: (Kenneth's lair. Should I? Shouldn't I? Would Kenneth be welcome now?) Should I get a condom or--
+
+Dobby: Okay.
+
+Mark: They're in the sock drawer. Hang on a sec and then we can let the enjoyable sex continue. (I don't know what to do. In a way Kenneth, I hate you.) Sorry they're in here somewhere, Dobs.
+
+Dobby: Shit, it's from Simon.
+
+Mark: (Great.)
+
+Dobby: His Mum's died.
+
+Mark: (You're off duty Kenneth, stand at ease.)
+
+Dobby: Sorry, Mark. Is it alright if I go over now to see Simon?
+
+Mark: (Could I say my Mum's dead? Would Dobby maybe believe that long enough for me to go home and shoot Mum?)
+
+Dobby: I do understand it's weird for us. So if you'd rather I didn't--
+
+Mark: You should go. (Nicely selfless. I can't control what she does, but at least I can make her feel guilty while she does it.)
+
+Dobby: It's really tragic isn't it?
+
+Mark: Very tragic indeed.
+
+Dobby: Although, his Mum was loaded, so Simon's going to be a very well off man.
+
+Mark: Is he? (Superb. Young, good looking, sexy and now rich. Perhaps the fucker can also teleport.) Is that a book Jeremy?
+
+Jeremy: Yes it's a book. Why shouldn't it be a book?
+
+Mark: Why do you have it?
+
+Jeremy: I'm going to read it, Mark.
+
+Mark: You're gonna read a book? You hate reading.
+
+Jeremy: No, I don't! I love reading. I read Mr. Nice four times. I read The Bunny Suicides. Look, I've offered to host Zahra's book group, okay? And now shitty Ben's decided he's coming because it's happening here and he's all jealous and suspicious. So what I thought was, even though I can't tell Ben to fuck off, I can defeat him mentally at the book group and impress Zahra by saying clever things. So I'm going to read all of this book from page one to... Oh shit, 372?
+
+Mark: How's the book going? Enjoying it?
+
+Jeremy: I look at it, I read the words, or think I do, but then I get distracted or I don't quite take it in and I have to go back. I've been on the same four pages for three hours.
+
+Mark: I see.
+
+Jeremy: Mark, how do you read? Can you teach me to read?
+
+Mark: You want me to teach you to read?
+
+Jeremy: Yes. I mean not literally but, how do you concentrate? Please tell me.
+
+Mark: Well, turn the telly off for a start.
+
+Jeremy: (Oh, turn the telly off. Everything bad starts with turn the telly off.)
+
+Mark: Okay, start reading that long paragraph there.
+
+Jeremy: Right.
+
+Mark: You probably feel like looking away from the page now don't you?
+
+Jeremy: Yes, yes, I do.
+
+Mark: Don't look away. Stay with it. Fascinating. It's like watching a sheep try to use an iPhone.
+
+Jeremy: Oh it's too difficult! I mean the story's told by a man and then a lady and then no one. Why can't we read something simple like Mr. Nice?
+
+Mark: Well, why don't you talk about Mr. Nice instead? About all the different times Mr. Nice got high to different extents.
+
+Jeremy: Right, I'm gonna sit outside on the balcony all night and finish this book. That way I'll be cold and I won't fall asleep.
+
+Mark: (There he is. The Captain Oates of having to read a relatively short book.)
+
+Jeremy: I can't do it Mark. It's 372 pages long and I'm freezing.
+
+Mark: My legs.
+
+Jeremy: So what I was thinking was, could you read it for me? The stupid olden days book. Please?
+
+Mark: I'm not staying up all night reading Wuthering Heights.
+
+Jeremy: Please. I'll do the washing up every day until I die and then my children will do the washing up after that.
+
+Mark: Look, I'm broke and you're relatively moneyed, so...
+
+Jeremy: Are we doing a deal? A grubby deal like oil men or corrupt councilors?
+
+Mark: Deals happen every day Jeremy. Buying a Twix is a deal. Paying for the toilet at Euston is a deal. I'll read the book. I'll look at some online criticism, but for a price.
+
+Jeremy: You massive prostitute!
+
+Mark: I'm not a prostitute, now please get out of my bed.
+
+Dobby: Best to have Pringles in bowls, otherwise you get Pringle hand. I think if Rod Hull and Emu where still alive, they definitely would've used them to advertise Pringles.
+
+Mark: Yes. So the birthday weekend's going ahead if you're still up for it, all the complimentary shower caps we can wear and proper cafetieres in the rooms.
+
+Dobby: Mark, you're unemployed, you can't afford that. Don't be silly.
+
+Mark: No it's fine I'm--
+
+Dobby: Mark, listen.
+
+Mark: Yes, listening.
+
+Dobby: I'm not still into Simon, okay? His mum died, he was sad, I made him a boiled egg. Stop waiting for all this to blow up because it's not going to unless you detonate your mad, paranoid bomb vest.
+
+Mark: Sorry.
+
+Dobby: How about we ditch the book freaks and head back to my place, yeah? You look like you need to be in bed.
+
+Mark: Well, I am very tired. I was up half the night reading. Oh, I see. Yeah, got you, bed lovely.
+
+Jeremy: Um, they're ready Mark.
+
+Mark: Yes, something else has come up, Jez, I can't do the book group.
+
+Jeremy: No, Mark, we made a deal. Remember? A grubby deal? You've got to defeat Ben!
+
+Mark: I need to renege on the deal, Jez. I really have got something else I'd rather do.
+
+Jeremy: Mark, I need you. I haven't read the book.
+
+Zahra: Jeremy? We thought we'd let you start, as it's your place.
+
+Jeremy: (We're letting you castrate yourself, as it's your penknife.)
+
+Zahra: Away you go.
+
+Jeremy: (Great. What do I say? I'm pretty sure it's a love story. Can I compare it to another love story? The film Love Story maybe?) Well, as a love story--
+
+Ben: I'm sorry, as a what?
+
+Jeremy: A love story?
+
+Ben: Oh come on Jez, this isn't a fucking love story, it's a fucking fuck story. It's about animal lusts and earth and dirt and fluids, not love, art, companionship, all that rubbish.
+
+Jeremy: (I hate you.)
+
+Super Hans: Crack.
+
+Mark: There you go.
+
+Super Hans: Cheers.
+
+Ben: Wuthering Heights is so obviously an exploration of, you know, wild elemental forces.
+
+Mark: Jeremy's right, he's a shit. Can we go in for five minutes, Dobs?
+
+Ben: Is an ode to dark passions and a kind of savage rhapsody.
+
+Mark: Savage rhapsody? Sorry Ben, very easily done, but I think you might accidentally be giving opinions from quite a well known online essay on Wuthering Heights as your own.
+
+Jeremy: (Fuck you! Mark's going in to bat for me.)
+
+Mark: Hasn't understood the book at all. Wuthering Heights isn't a hymn to lust and passion.
+
+Jeremy: (And he's really good at this, unlike any game actually involving a bat.)
+
+Mark: Gothic nonsense is and how it inevitably has to give way to real life and real love.
+
+Zahra: Wow. Blimey Mark, you sound like an intellectual. Like Tony Parsons or something.
+
+Mark: (This is what I was born to do. It's like Robert Robinson fucked Joan Bakewell and they had me.)
+
+Ben: Right, screw this, I'm off. Bunch off fucking psueds.
+
+Zahra: Well, shall we cool off? Put our big hot brains on ice for five.
+
+Mark: Back to yours?
+
+Dobby: Sounds like a plan, Stan.
+
+Jeremy: Thanks mate.
+
+Mark: It's alright Jez, I'm just off to Dobby's and I don't think I'll be needing to be friends with Kenneth anymore.
+
+Jeremy: Okay. Do you think Kenneth might have been made redundant?
+
+Mark: Indeed. I think Kenneth can take a hike.
+
+Jeremy: Kenneth is what Mark calls his nine-inch dildo.
