@@ -1076,7 +1076,7 @@ Dobby: Ugh!
 
 Mark: I know. (Never pick a fight with Stalin, Gerrard. Uncle Joe don't play by your rules.)
 
-#A Beautiful Mind
+# A Beautiful Mind
 Mark: (Sex over, now the smiling and staring. I think Dobby might be bored with me sexually. I'm vanilla. I should be, not Neapolitan, that's too '70s, but pistachio, slightly unpleasant but novel.) I was thinking of booking that country house hotel for your birthday.
 
 Dobby: Really? 'Cause country house hotels? I mean, doesn't working in a Mexican restaurant mean we'd be better suited to a Premier Inn and a bottle of supermarket voddy? Or I could pay?
@@ -1662,3 +1662,1279 @@ Jeremy: Okay. Do you think Kenneth might have been made redundant?
 Mark: Indeed. I think Kenneth can take a hike.
 
 Jeremy: Kenneth is what Mark calls his nine-inch dildo.
+
+# Nether Zone
+Mark: Where the hell are you, Jeremy? We're gonna be late for the christening.
+
+Jeremy: Chill, brother. Where are you?
+
+Mark: I'm at the station, where you were supposed to be 15 minutes ago. I'm in a phone box.
+
+Jeremy: What are you doing in a phone box? Have you put a farthing in the slot? Hey, Mark's in a phone box!
+
+Zahra: Is it an ironic thing?
+
+Jeremy: Are you doing it ironically?
+
+Mark: No, I've simply got rid of my mobile.
+
+Jeremy: You've what? Oh, my God, this is massive! What are you gonna do next, move into a hut and start drinking your own piss?
+
+Mark: We've got a land line. Times are hard, Jeremy. I'm putting my clarinet on eBay, I'm making my own hummus. This is the end times. A mobile's a luxury.
+
+Jeremy: Yeah, right. What if I need to contact you? What if I take a mega trip and forget who I am? What if we run out of Marmite and you're at the corner shop? These are all real-life nightmare scenarios.
+
+Mark: Look, where the hell are you? I'm coming to get you.
+
+Jeremy: Zahra's.
+
+Mark: Oh, right.
+
+Jeremy: Oh, we were doing some work for Ben, and it got late and I stayed over, God!
+
+Mark: Well, be ready. We've missed the train, I'll get us a cab.
+
+Jeremy: (Free cab ride to the christening. Another win for the lazy man.)
+
+Zahra: Right, I'm rolling.
+
+Jeremy: Okay, let's brew this thing! Oh, fuck!
+
+Zahra: Bye, Jeremy.
+
+Mark: How long is this gonna take? How long does a washing machine take?
+
+Jeremy: Could be, like, 15 minutes, could be, like, 18 hours. I normally just bang it in and leave it for a couple of days.
+
+Mark: We're going to be late if we don't leave right away.
+
+Jeremy: Well, fine, but I can't just take them out, can I? It's so frustrating. I can see them, but I can't get to them.
+
+Mark: We'll buy you some trousers on the way. We need to leave now!
+
+Jeremy: (Oh, great, Tesco trousers.) Ben's! I can get them back by tonight, he'll never know the difference.
+
+Mark: Oh, great. Steal his woman, steal his trousers. You and your wicked willy.
+
+Jeremy: Has it never occurred to you that two human beings of the opposite gender could have a simple human relationship without sex being involved? You think you know me so well, but you don't.
+
+Mark: Jeremy, you once told me that chairs make you feel horny.
+
+Jeremy: I'm not just some filthy sex beast, you know. I am capable of higher thought. I do have feelings, ambitions, dreams. I thought of that hat that could keep beer cool if you--
+
+Mark: Uh-huh, sure. Great, now, there's a minicab place not far from here, we can. What's?
+
+Jeremy: Just turn the knob.
+
+Mark: Well, I am turning the knob, obviously.
+
+Jeremy: Well, turn it properly.
+
+Mark: Well, I am turning it properly Jeremy.
+
+Jeremy: Well, obviously not, otherwise the door would be open.
+
+Mark: It's not opening. It's not opening.
+
+Jeremy: Let me try. Mr Patheto-hand. (Oh.)
+
+Mark: (Little bit pleased he didn't manage it with ease.)
+
+Jeremy: It can't be locked.
+
+Jeremy: (Uh-oh.) Someone's double-locked it?
+
+Mark: Fucking fucklebucks!
+
+Jeremy: Don't sweat it dude, I'll call Zahra.
+
+Zahra: Hi, it's Zahra.
+
+Jeremy: Oh, answerphone.
+
+Zahra: Please leave a message.
+
+Jeremy: Er, hi, Zahra, Jez here. Yeah, erm, we're locked in your building, so if you could come back and release us from the cage, that'd be much appreciated, thanks a lot, bye-bye.
+
+Mark: We can't get back in and we can't get out, we're trapped, Jeremy. We're bloody trapped!
+
+Jeremy: Relax, I'll credit-card the lock.
+
+Mark: That's a debit card.
+
+Jeremy: Oh, fuck, this is impossible. It's really irresponsible of films to make out that this is an option at all, because it just isn't.
+
+Mark: Oh, God! I'm the sort of person who rewinds if I miss a tiny bit of a film, even a film I'm not particularly enjoying, and now I'm gonna miss the whole of my son's christening. (All I have in the dad bank is my record of punctuality. Without that, I've got nothing. Come on, Flat B, was it you who so coldly locked us in here to die? Or the security-obsessed wanker in Flat A?) Ring Zahra again.
+
+Jeremy: No, my battery, I've only got, like a milli-bit of power bar left. I suppose a phone of your own might be quite useful right now, yeah?
+
+Mark: Yes, it would, and I'm an idiot, and any attempt I make to escape the debt-driven rat race must be punished immediately, and in the most brutal fashion. Okay, happy now?
+
+Jeremy: I suppose we do need to get out of here quite soon, before the air supply runs out.
+
+Mark: What?
+
+Jeremy: Well, in here, the air supply's gonna run out sooner or later. What? I'm not an idiot. Why does that make me an idiot?
+
+Mark: I need to make one call, just one call.
+
+Jeremy: Just one, I'm not having you being profligate with my bar.
+
+Mark: Hello, Directories? Yeah, Thornton Heath locksmiths, please.
+
+Jeremy: That's two!
+
+Mark: They're putting me through, it counts as one. Hello? It's just possible you could save my life. Yeah. I've got myself locked in my flat, if you can believe it. The address? Er, yep, the address. It's, erm, King's Road.
+
+Jeremy: King's Drive.
+
+Mark: King's Drive. And the number? The number.
+
+Jeremy: 52, ooh, 54. Er.
+
+Mark: It's in the 50s.
+
+Jeremy: Is it a 40? 40-something? It's a 40.
+
+Mark: Perhaps you could come to King's Drive and walk up and down, and I'll shout through the letter box?
+
+Jeremy: 42! 42 King's Drive!
+
+Mark: 42, we're pretty sure we live at 42 King's Drive. Well, that's customer service. He called me a prong.
+
+Jeremy: Prong? Okay, Mark, give me the phone.
+
+Mark: Yeah, but there's the police or the fire brigade? If we tell one of them, they'll alert the others, 'cause they're all friends. I mean, not friends, but.
+
+Jeremy: Mark, I know this phone. It's not one of these fakers that can run forever on one red millimeter. This phone doesn't fuck around.
+
+Mark: (I never used to let my battery run down. I miss you, phone.) Ambulance?
+
+Jeremy: Pizza.
+
+Mark: You can't waste the bar on pizza!
+
+Jeremy: Yes, I will hold.
+
+Mark: Don't hold!
+
+Jeremy: I'm hungry, Mark! I didn't have any breakfast! Or would you have us both starve to death? Yes, I'd like a large feast please.
+
+Mark: (Look at him, the greedy gobfather gobbling pizza on his godson's time.)
+
+Jeremy: Are you posting yourself out piece by piece?
+
+Mark: I'm trying to catch the light with my watch face, send out an SOS, Morse code. A passer-by might notice it.
+
+Jeremy: Uh-huh. Maybe you'll attract a naval captain, who'll come and rescue us in his frigate. Ooh, I tell you what, though.
+
+Mark: What?
+
+Jeremy: I really need a wee. Maybe, in a corner? Or we could make an area that became disgusting?
+
+Mark: No, I'm not having it in here. If you need to wee, there's the letter box.
+
+Jeremy: What, you mean flop the hose out of the slot?
+
+Mark: Well, needs must.
+
+Jeremy: Oh, right, and what if a passer-by decides to try and turn off the nozzle? Hm? What if a squirrel wants a sausage? I'm not just sending my member out into the world solo to seek his fortune. I look after him and he looks after me. That's the contract. The letter box is not a glory hole for urine.
+
+Mark: Right, I'm going to this christening. I'm gonna bloody well kick the door down.
+
+Jeremy: Are you serious? You're going to kick the door, using one of your legs, with enough force it's going to be smashed open?
+
+Mark: Yes.
+
+Jeremy: Mark Corrigan is going to kick down a door? Oh, this is too good. Don't start yet. Just let me get settled. Okay. And go, go, Gadget Leg! Mm, mm, good. Good first kick. Of course, you are going to have to smash it out of the frame, so only about another million more kicks like that and we'll be out.
+
+Mark: Fuck you. I'm not wearing the right shoes.
+
+Jeremy: Oh, right, yeah, wrong shoes! Yeah, sure, bummer.
+
+Mark: Arrrgh! I am so screwed! I'm so utterly, utterly screwed!
+
+Jeremy: Look, dude, Zahra's gonna call back. But, you know, until she does, we're in the Nether Zone, yeah? Time moves at a different speed in the Nether Zone. We need to relax.
+
+Mark: You can't relax! We've got to fight, worry, speculate, tut, pace, swear!
+
+Jeremy: Why?
+
+Mark: Because it's an emergency! And in an emergency, you watch breaking news, and count your tins of butter beans. You don't just sit in the garden and put on Kiss FM.
+
+Jeremy: Dude, we're here for the duration. Let's chill out.
+
+Mark: We have an obligation to be anxious. It's a mark of respect for the gravity of the situation.
+
+Jeremy: Let's get to know each other.
+
+Mark: Oh, for God's sake!
+
+Jeremy: Okay, um. Oh, oh! Okay, if you had to, if you had to, would you have sex with me?
+
+Mark: It's a stupid question.
+
+Jeremy: If you had to. If the men came and they made us, with their guns.
+
+Mark: Oh, I don't know. I suppose, maybe I could do it, just so long as you didn't.
+
+Jeremy: What?
+
+Mark: Enjoy it. I think maybe I could make it through, as long as I knew you weren't enjoying it.
+
+Jeremy: Hang on. You're saying you could rape me, but you couldn't make love to me. That is so you, that is you all over.
+
+Mark: That is not me all over.
+
+Jeremy: Okay, here's a history one. What would you have done in France in the war? Would you have joined the Resistance or not?
+
+Mark: I'm not getting into that.
+
+Jeremy: Ah, but you want to, though, don't you? I've tickled your historical G-spot.
+
+Mark: Jeremy, you could at least try to take this seriously. You are the godfather. What do you think about this, Jeremy? Do you think this is too high?
+
+Jeremy: Nah, that's fine, totally fine. Why don't you just jump out of the window?
+
+Mark: I think I could probably do it. I just need to lower myself the initial portion and then drop.
+
+Jeremy: Mark, we're not in Road Runner.
+
+Mark: Jeremy, I'm a father. I need to be at my son's christening. I'm not a park bench, White Lightning guy. Besides, after weeks of negotiation, I finally got Sophie to agree to James Ian rather than Ian James, after her dad.
+
+Jeremy: Baby Ian.
+
+Mark: Mm.
+
+Jeremy: Ian Chapman. You'd have a baby that sounded like a solicitor.
+
+Mark: Exactly. So I need to make sure she doesn't swerve off-road at the last moment. Do you really think it's impossible?
+
+Jeremy: Well, I mean, I could make it, but.
+
+Mark: You think I couldn't do it but you could?
+
+Jeremy: Yeah, if I needed to. I'd just jump over the trellis, bounce off the wall, hit the ground, parachute roll, basic moves.
+
+Mark: Well, go on, then.
+
+Jeremy: Nah.
+
+Mark: Why not?
+
+Jeremy: Not in the mood.
+
+Mark: (Could I jump? Might make it easily. More likely splatter like a blood-filled pumpkin.)
+
+Jeremy: (Oh, that's better.)
+
+Mark: You're actually doing it?
+
+Jeremy: Yes, I'm actually doing it.
+
+Mark: God, Jeremy! What if someone outside thinks it's some sort of comment? I hope there's no black or minority ethnic person walking past who thinks it's.
+
+Jeremy: Mark, it's a perfectly friendly piss. I'm not. Oh, shit! Withdraw all units. If it's the cops, don't open the door.
+
+Mark: I can't open the door, Jeremy. That's one of the key things about this whole situation.
+
+Delivery Driver: Pizza.
+
+Jeremy: Pizza! Nutritious, delicious pizza!
+
+Mark: How's he supposed to deliver it through a locked door?
+
+Jeremy: I've thought about that. Just slide that baby through the letterbox, dude.
+
+Mark: Of course, the letter box. Your new pleasure portal.
+
+Delivery Driver: It won't fit, mate, it's a large one.
+
+Mark: Defeated by your own greed. It's like a Grimms' fairytale.
+
+Jeremy: Piece by piece, dude. Piece by piece.
+
+Mark: Oh, you've got to be joking.
+
+Delivery Driver: Okay, money first.
+
+Jeremy: Keep the change.
+
+Mark: (This is so not how I imagined the day of my first-born son's christening.)
+
+Jeremy: Oh, shit, no, the brush! Dude, dude, we're getting fucked with the brush! Do you want some?
+
+Mark: A slice of bristly cheese-free pizza, lightly brushed in your piss? How can I refuse?
+
+Jeremy: What happens if you eat letter-box hair?
+
+Mark: Strangely, there's been very little research into that scenario.
+
+Jeremy: Does post even need brushing? Who wants brushed post? Hang on, dude, I've got it. I've got a sheath. Use this as a protective covering.
+
+Mark: (Look at him, the James Dyson of pissy pizza.)
+
+Jeremy: Yeah. Hey, Mark, it's working. We've cracked it! We should sell these. Periodical pizza shields. We could take these to the Dragons!
+
+Mark: We'll make our fortune. This is a situation millions of people find themselves in every day. There's no name for this situation, it's so unusual!
+
+Jeremy: Hello? Oh, hi, Ben. Er, where am I? I'm at home right now. I mean I've got to go to this christening
+
+Mark: (OK, he's lying. This is interesting).
+
+Jeremy: But I'll be on vibrate.
+
+Jeremy: (Fine, I'll get the pizza, shall I?)
+
+Jeremy: OK, you're popping over to Zahra's? I mean do you need to, dude?
+
+Mark: (Great, I'm gonna miss the champagne and canapes because I'm working as Jeremy's mad pizza butler.)
+
+Jeremy: Great.
+
+Mark: (Would actually quite like a slice. But if I ate one, I'd feel like he'd won.) Thanks!
+
+Jeremy: Oh, shit, oh, shit, oh, shit! Ben's coming here! He's got a key, he's gonna pick up his laptop. Oh, fingerbobs!
+
+Mark: Well, that's great. We're saved, we're rescued! We might even make it to the christening in time. Everything's gonna be all right!
+
+Jeremy: No, it's not. Everything's triple-fried fucked!
+
+Mark: Oh? Why?
+
+Jeremy: Because I did sleep with Zahra last night, okay? If you really want to know.
+
+Mark: Then why did you have such a go at me for being filthy-minded?
+
+Jeremy: I don't know. I was just on a roll, enjoying being self-righteous. Besides, we very nearly didn't.
+
+Mark: I see.
+
+Jeremy: But then we totally did. I mean, if it makes you feel any better, the sex was terrible. We didn't connect. She's LEGO, I'm a Stickle Brick. Plus she's very orally focused, whereas I'm--
+
+Mark: It's fine.
+
+Jeremy: Oh, shit. Oh, this is bad, this is really, really bad. I'm gonna lose the best job I've ever had. Oh, what am I gonna do?
+
+Mark: Why don't you try having sex with women who aren't already in relationships?
+
+Jeremy: Oh, that's nice. Kick the dirty dog while he's down. The dirty, filthy dog deserves another quick boot in his tender nuts.
+
+Mark: (It is quite nice kicking him in his tender nuts, the filthy, filthy bastard.)
+
+Jeremy: We've got to get out of here!
+
+Mark: Yes, that has been my view for some time, as it happens.
+
+Jeremy: (Ooh.) Oh. Is this the same window? 'Cause it looks much higher up.
+
+Mark: What, now you're actually considering it?
+
+Jeremy: Oh, I can't do it.
+
+Mark: (Of course. He's a pathetic worm, just like me, good.)
+
+Jeremy: Ben's gonna be here any minute. I've got to hide.
+
+Mark: Brilliant, hide. You could pretend to be a stuffed beast, or an extremely peculiarly shaped parcel.
+
+Jeremy: Hey, Dr Sarcasmo, I've found something, look.
+
+Mark: Okay, congratulations, you've found an area.
+
+Jeremy: But we can utilize this area.
+
+Mark: Uh-huh?
+
+Jeremy: It could be great for sleeping, this could be where we sleep, or do our business.
+
+Mark: We are not shitting or sleeping in the area, Jeremy.
+
+Jeremy: I could hide in the area when Ben comes. Perfect!
+
+Mark: Hmm, didn't get four across, boat, but they aced solipsism? Who was this person?
+
+Jeremy: Hey, look, Mark.
+
+Mark: Yeah?
+
+Jeremy: A thing, a bit. This is our ticket out of here. We can do anything with this!
+
+Mark: Your faith in the bit is touching, Jez.
+
+Jeremy: We could smash a window, or break a lock, or hit a man over the head with it. It's like Whose Line Is it Anyway? for criminals. We could sit on it for entertainment, or I could wedge it in. (Come on, bit, don't let me down now, bit.)
+
+Mark: Hold on, Jeremy. I think I might have found a simpler way of doing that, under the bucket.
+
+Jeremy: Zahra's spare? Ahhh!
+
+Mark: (Great, into the flat. Back to square one, whoo-hoo.) Right, phone.
+
+Jeremy: Food, water! Hey, I wonder if she's the sort of dirty sausage that keep a little skin flick at the back here.
+
+Mark: Jeremy, do you think we could take a brief time-out from the masturbatathon that is your life to go to my son's christening? Right, what's Sophie's mobile number? 07700, that's definitely how it starts.
+
+Jeremy: You can do it, Rain Man.
+
+Mark: 07700, 9-0-0-5-6-3? I think that's right. It's ringing, it's ringing! Hello? It's not her, it was a man.
+
+Jeremy: Try again. Try all the variations.
+
+Mark: Try all the variations of the five or six numbers I'm not sure of?
+
+Jeremy: Yeah, there can only be a few variations.
+
+Mark: Of all the numbers?
+
+Jeremy: Yeah.
+
+Mark: You really are an imbecile, aren't you?
+
+Jeremy: I'm only trying to help.
+
+Mark: Well, you're not helping, you're--
+
+Ben: Hi, yeah, I'm just heading in to my bitch's place right now.
+
+Jeremy: Hide!
+
+Mark: What?
+
+Jeremy: We've got to hide!
+
+Ben: I'm gonna grab my laptop, chow down on some brunchicus.
+
+Mark: Oh no, Jez no, I don't want to hide.
+
+Jeremy: We should be safe in here.
+
+Mark: I can't believe I'm doing this. Look, we should just go out there and face up to our responsibilities, like men.
+
+Jeremy: Sure, go on, then.
+
+Mark: I mean, not actually, but we should at least consider it.
+
+Jeremy: Look, once he's had brunchicus, he'll piss off and we can make a break for it.
+
+Mark: Well how long's that going to take?
+
+Jeremy: I don't know! Look since we're stuck in here, you might as well answer my question about the French Resistance.
+
+Mark: I dunno, Jeremy. It would have been terribly difficult time, but I would probably have kept my head down.
+
+Jeremy: You're kidding! I totally would have joined up.
+
+Mark: Well that's very easy to say, Jeremy, but you would have risked death, not just for yourself, but for your family.
+
+Jeremy: I'd probably have just got in a train to Berlin and taken Hitler down. Boof, the whole thing's over.
+
+Mark: Well, I guess we'll never know for sure.
+
+Jeremy: Oh, I know, I definitely know. No question about it.
+
+Mark: Well, congratulations. You would have been a brave, brave man.
+
+Jeremy: I can't believe you wouldn't be in the Resistance with me. I'm really disappointed in you.
+
+Mark: I can only apologize.
+
+Jeremy: Don't apologize to me, apologize to Europe.
+
+Ben: Well I don't know why they're called beanie hats.
+
+Jeremy: Oh, shit, he's coming!
+
+Mark: OK, we give ourselves up, come clean.
+
+Jeremy: Or.
+
+Mark: (Bloody hell!)
+
+Ben: Look, I just think beanie hats, are what it's all about now, dude.
+
+Mark: Oh, my, God.
+
+Ben: Well, I don't know why they're called beanie hats. Maybe it's cos in the olden days people used to store beans in them? Who fucking cares? Yeah, all right, call me in a bit. Over, Gold Leader. Ohh!
+
+Mark: So horrible.
+
+Jeremy: I know, I know man.
+
+Mark: OK, right, I've got to get out of here.
+
+Jeremy: No, Mark. If you go out there, you'll destroy me. You'll destroy my career. Either that or destroy my relationship with my son.
+
+Jeremy: Bollocks. He's how old, one month? All he knows is that it's bath time in the biggest, weirdest bath in the world. All right, if you've got to go, can you at least do something like run out with the radio? Then he'll think you're a burglar.
+
+Mark: The radio-loving burglar? What if he stabs me?
+
+Jeremy: He won't stab you. You're so overly dramatic.
+
+Zahra: Ben?
+
+Ben: Yeah, hi, honey, I'm in your home! Forgot my laptop. Beanie man!
+
+Jeremy: (Here she comes. If she washes, I stay put, toilet action and I'm coming out.)
+
+Jeremy: Hello
+
+Mark: Hi.
+
+Zahra: What the hell?
+
+Jeremy: We got locked in the Nether Zone.
+
+Zahra: The what?
+
+Mark: The airlock between your flat and the front door.
+
+Jeremy: And then we got back in, and then Ben came, so we hid.
+
+Zahra: And he doesn't know that you're?
+
+Jeremy: No.
+
+Zahra: Well, what are you going to do?
+
+Jeremy: We don't know. Didn't you get my message?
+
+Zahra: This is really, really weird. You're in my shower.
+
+Jeremy: No, Zahra, it's not some weird thing. We're not touching ourselves, or touching each other.
+
+Zahra: My boyfriend's out there.
+
+Jeremy: I know, and I guess this might be a good time to, as we discussed, break up with him. I mean, he might leave, all crying, and, you know, everyone's cushty.
+
+Zahra: I can't handle this right now Jeremy. I think we should put the whole thing on ice.
+
+Jeremy: You mean us dancing on ice?
+
+Zahra: No, like they put dead bodies on ice.
+
+Jeremy: Is this about last night? 'Cause I can do better, I know I can. I didn't even, go down on you, which is a great shame, because I love to go down on women, don't I, Mark?
+
+Mark: Rinse and repeat. Always with the rinse and repeat.
+
+Zahra: It's over, Jez. That's the headline, okay? Jez, come on.
+
+Mark: Look, I really, really don't want to get into this conversation, I'm missing my son's christening, so if you'll excuse me.
+
+Zahra: Mark, no. Ben can't find out what's been happening. We can't break up over one little blip.
+
+Jeremy: "One little blip"? Why do I keep getting dumped? I mean, what's wrong with me? Am I a bad person?
+
+Mark: No, you're not a bad person, Jez. Zahra's just having a little wobble, it's all gonna be fine.
+
+Zahra: I don't think it is.
+
+Mark: I'm going. I've got to go. I'm really, really sorry, but it's not my fault.
+
+Ben: Hey, hon, can I jump in the shower? I'm so sweaty, my sack's stuck to my leg with superglue.
+
+Zahra: Give me five minutes.
+
+Ben: Jeremy! Mark?
+
+Mark: Er, yeah, sorry, I've got to go, goodbye.
+
+Ben: What the hell are they doing here?
+
+Jeremy: Look, I should, er, explain. Sometimes we come here, me and Mark. Zahra lets us use this place.
+
+Ben: What for?
+
+Jeremy: To meet. Um, it's just a good place for us to meet at lunchtime.
+
+Ben: What, are you and Mark?
+
+Jeremy: It's complicated.
+
+Ben: And you use this place to?
+
+Jeremy: Well, often we'll just have a glass of wine and a chat. But yes, sometimes Mark and I will jump in the shower together.
+
+Mark: Still locked, double-locked. Can I get the key?
+
+Ben: No! But, what the fuck? Why here, why not at your place?
+
+Jeremy: Why here? Er, Mark, you explain.
+
+Mark: Well, we just feel safe here. There's a lot of prejudices and labels in the world, but here it's a free zone. Now can I get the key?
+
+Ben: No.
+
+Mark: Very well.
+
+Jeremy: We used to go to the Travelodge, but.
+
+Ben: Why is he wearing my trousers?
+
+Jeremy: Look, the truth is that sometimes we like to pretend that one of us is you so that the other one gets to fuck him.
+
+Ben: That's bullshit. You're not gay guys, you look like shit for gay guys.
+
+Jeremy: Hey, you don't know all the kinds of gay guys. We're not all clones from the clone zone. (God, I'd be a great gay guy!)
+
+Mark: Argh!
+
+Jeremy: You did it, man! Did you do a parachute roll?
+
+Mark: Sort of.
+
+Jeremy: You da man! (My God, he did it! What an incredibly brave dick pipe.)
+
+Jeremy: At least we made it in time for the party.
+
+Mark: Hmm. Are you okay?
+
+Jeremy: He didn't actually say I was sacked. I mean, he didn't say it.
+
+Mark: I think it was implied.
+
+Jeremy: I actually think I aced it.
+
+Mark: (I feel bad when everything's basically fine, while he feels good after enduring the most humiliating day of his life. It's infuriating.)
+
+Mark: Hello, Ian. Sorry we're late.
+
+Ian: You've missed your son's christening, but you've made it in time for the sandwiches? Congratulations.
+
+Mark: Yes, well.
+
+Ian: My children's christenings were two of the proudest days of my life. But you? What, you took the wrong turning? Your sat-nav was broken? What was it?
+
+Mark: It was complicated.
+
+Ian: It was complicated. You can tell that to your son.
+
+Sophie: You missed it.
+
+Mark: I know. I was just.
+
+Sophie: Jeff was kind enough to stand in as godfather.
+
+Jeremy: Oh, that's good. Hate for him to go to hell cos of silly old me.
+
+Jeff: Just get us a pint, mate, and we'll call it quits.
+
+Sophie: Yeah, and I hope you don't mind, but we put our heads together at the last minute, and we felt Ian James just sounded more him.
+
+Mark: (Oh, fuck.)
+
+Jeff: How about a toast? To baby Ian.
+
+All Three Together: Baby Ian!
+
+Mark: (Mm. Sweet, delicious, rancid Champagne.)
+
+# New Years Eve
+Mark: Nothing from Dobby since Christmas. I want to call again, but when I leave long messages, I have this nagging sense that I'll end up hearing them played back to me at a court of law.
+
+Jeremy: Ah, don't stress it man. We're gonna have new years dude, Darty style. Remember that time we were coming back from Cinderella's and Pedge put his pants on the taxi driver's head and he couldn't see a thing?
+
+Mark: Yeah that would have been more hilarious had I not been literally weeping with fear.
+
+Jeremy: Oh, come on man. Shake your booty. Tonight even Paxman's out, hoovering up line's of crank off Krishnan Guru-Murthy. Tonight's the big one.
+
+Mark: Jeremy, all rational people agree it's a truth self-evident that it's impossible to have a good time on New Year's Eve. The pressure's too immense. All I want is to go to Johnson's, find Dobby, and sort everything out.
+
+Jeremy: Okay, we'll go to Johnson's as a stomach liner, a seat warmer. But then I'm taking you on a poonani hunt!
+
+Mark: No, Jez.
+
+Jeremy: Come on man. Dobby's gone. Zahra's gone. Tonight it's not about the bitches, it's all about the Hitches.
+
+Mark: The Hitches? You think we're Peter and Christopher Hitchens on a big night out? And I suppose I have to be Peter.
+
+Jeremy: Zahra!
+
+Zahra: I was in the area. Thought I might pop by.
+
+Jeremy: Yeah? (That's the kind of bullshit I come up with. Is she doing a me? She still likes me! Or does she? I need evidence. I need confirmation, quick. Okay, here goes.)
+
+Zahra: Jez!
+
+Jeremy: Sorry, that was probably totally inappropriate. It's just, you know, sometimes the scent of a woman.
+
+Zahra: Okay, the truth is I came here to tell you that Ben and me. We're finished. I found out he slept with someone else.
+
+Jeremy: (God.) Who would have sex with Ben?! Apart from you, obviously.
+
+Zahra: He said he only did it because he was missing me so much. But I'd only gone out to see a film.
+
+Jeremy: Jesus!
+
+Zahra: I know. So I started thinking. We really had something, you and me. We're the same, a bit.
+
+Jeremy: Half a tub of cookie dough.
+
+Zahra: And two films by Francois Truffaut.
+
+Jeremy: (I will never know what that means.)
+
+Zahra: So I was wondering, and this is completely crazy, but what would you think about moving in with me?
+
+Jeremy: OK, wow. (Don't say yes too quick. Don't say yes too quick.) Yes!
+
+Zahra: Cause I really, really like you, Jez. And Ben's going to stop paying my rent. And I think we just click. And we can do a direct debit, or whatever!
+
+Jeremy: Sure. I mean, Ben will definitely fire me, but I'll just get another job. I could easily start my own music merchandise website. I mean, I'm gonna get a laptop, so yeah, sorted. (I'm moving in! I'm going to be the boyfriend who pays rent! I'm her rent boy but not sucking cock in a phone box. Eating pussy on a tumble dryer!)
+
+Mark: Fancy dress. It's like a joke for people with no sense of humor.
+
+Zahra: Hello? Oh. Hi, Ben.
+
+Jeremy: So, listen, dude, listen. You know how women, when they live together, their periodicals start arriving at the same time, and how dogs come to look like their owners? Well, I really wouldn't want that to happen to us, so it actually looks like I'm going to be moving out.
+
+Mark: Are you? Has Super Hans been talking about his kibbutz idea again? Cause I can assure you, the State of Israel will not allow a "kibbutz for hotties".
+
+Jeremy: No. Zahra's split up with Ben and she's asked me to move in with her.
+
+Mark: Oh. Right. Wow. This is very abrupt. It might have been nice to not take me to the Spaghetti House and buy me a carbonara, but at least you know.
+
+Jeremy: Dude, man, it's no biggie, you and me. It was a phase. Bada bing, bada bye.
+
+Mark: Bada bing, bada bye?
+
+Jeremy: All things pass, you know? We're born, we live, we die. Plus Zahra's getting a 3D TV, so it all makes perfect sense, if you think about it.
+
+Mark: Right, good. Congratulations.
+
+Alan: Johnson. Alan Johnson.
+
+Mark: (Wish I'd come as Bond instead of a stupid fisherman from not even a film.)
+
+Alan: Wet suit. The full Bond. I'm scuba diving again. Thank you, direct marketing. What have you come as? Techno hippy street bum?
+
+Jeremy: I'm not actually wearing a costume, Alan. So the joke's on you.
+
+Alan: Yes, I knew that, so the joke's on you.
+
+Jeremy: Well, I didn't realize you knew that, so it can't have been a very good joke. Happy New Year.
+
+Zahra: So, listen. Really weird one. Apparently a guy from Time Out magazine turned up at Ben's party, and Ben says he wants to talk to me about publishing a booklet on my blog posts.
+
+Jeremy: Your alphabetical lists of French films?
+
+Zahra: He thinks they're seminal.
+
+Jeremy: Mm-hm. Don't you think there's a chance that Ben might be trying to reel you in? I'm not saying you're a fish.
+
+Zahra: Don't you think they're good lists?
+
+Jeremy: Oh, no, they're great lists. They're long lists. Maybe they do want to publish them.
+
+Zahra: Exactly. It's too big to miss. See you later, housemate!
+
+Jeremy: (Ugh. Day one and the housemate gets dicked over.)
+
+Alan: So pretty good numbers. Nailed a lot of the key players. Liam Kendrick in the house!
+
+Liam: Hey!
+
+Mark: So are you still pissed off with Big Suze?
+
+Alan: What? Fuck you. Why would I even be? What a stupid thing to say, Mark.
+
+Mark: Sorry.
+
+Alan: If poor little bitch girl wants to have her spoiler party all over my housewarming, why would I even give a shit? Huh? Why?
+
+Mark: I don't know.
+
+Alan: Me neither. So, let's grab you a cool can of Kronie and a bag of nuts. Or an ice cold, long-necked Bud. Hubba-bubba!
+
+Mark: Alan, are you still?
+
+Alan: Oh, yeah. Appletise. Five years, clean and serene. Hey, just cause you're looking at some titties, doesn't mean you have to suck on the nip-nips, right?
+
+Mark: Thanks, Alan. I'll get stuck into that later.
+
+Alan: Oh, come on, Mark! A Beck's, a simple Beck's. Up on the South Downs, a haversack full of Beck's? That's the dream, ain't it?
+
+Mark: I want to keep a clear head for when I talk to Dobby. Do you think she might be here soon?
+
+Alan: I don't know, Mark. We've been over this. She might pop in. Mmm, cold white wine. Ain't that fine?
+
+Mark: (Hmm. He's conned me to his party. Cause it's hard to take a legal position on "might pop in". Anyone might pop in. Jeffrey Archer, Hugo Chavez, Skinner and Baddiel.)
+
+Jeff: Aye-aye, Captain Birdseye! So what have you caught then? Some mackerel? Sexual herpes from bumming a tramp?
+
+Mark: (Your insults are absorbed by the theoretical levity of the costume.)
+
+Jeff: So come on, then. Is it true, Mark? That you've had your dick in the Dob?
+
+Mark: You might say that, but I couldn't possibly comment.
+
+Alan: What? Have you, Mark? Had your dick in the Dob?
+
+Mark: OK, yes. Yes, yes, I've had my dick in the Dob.
+
+Alan: So what's an average night in? You sit around reading Superman comics, sucking each other's cocks?
+
+Mark: (Just grin and take it.) I guess.
+
+Jeff: She's a freak, isn't she?
+
+Alan: But what kind of freak? Is she a manimal or a bestselling Flanimal, would you say?
+
+Mark: (Does he want an answer?) I guess she's more of a manimal than a Flanimal.
+
+Jeff: D'you hear that, Dobs?
+
+Dobby: I'm a manimal?!
+
+Mark: I don't even know what a manimal is.
+
+Dobby: He's a shape-shifting crimefighter, Mark. You've had your dick in the Dob? Fucking hell!
+
+Mark: Dobby! Wait! Where are you going?
+
+Dobby: I dunno, maybe Super Hans'? Somewhere where people won't slag me off behind my back.
+
+Mark: It was just party chat. I was only being horrible about you to ease things along.
+
+Dobby: You're such a dick.
+
+Mark: Look, I owe you a massive apology for just now, and-- (Is that my baby?) and for Christmas, and--
+
+Dobby: Mark, are you getting bored of your own apology?
+
+Mark: I'm sorry and-- (It bloody is my baby. Is it?)
+
+Dobby: And what?
+
+Mark: Sorry, it's just that I recognize.
+
+Dobby: See you around, dickwad.
+
+Mark: No, Dobs, I--
+
+Mark: (My baby. Is that mad? Has he followed me here in a desperate plea for attention? Or am I man-handling a random humanoid?)
+
+Sophie: Mark, is he all right?
+
+Mark: He fell out of his basket. I rescued him.
+
+Sophie: From the soft carpet where he was asleep?
+
+Mark: What if someone with clogs on had come in out of their face and marched around the room like a horse, or, you know, anything?
+
+Sophie: He was sleeping, Mark. I had to go upstairs and talk to my brother. He's actually having a really hard time. He even posted some pictures of his scrotum on Facebook, so.
+
+Mark: I'm just saying that the situation looks perilous.
+
+Sophie: Uh-huh.
+
+Mark: (Great. Dobby's gone and I'm left with my ex, who despises me, and my son, who probably thinks Jeff's his dad, while I'm just some mad, landlocked fisherman.)
+
+Jeremy: There ain't no party like a Super Hans party!
+
+Mark: (Only if Dobby's here.)
+
+Jeremy: Let the poonani hunt commence!
+
+Mark: The hunt for poonani? I thought you were moving in with Zahra.
+
+Jeremy: Exactly. I've made a firm commitment. We're practically getting married, so this is basically my stag do. Free pass!
+
+Mark: If Dobby's here, I need to make it up with a gesture, something extraordinary. I could offer to marry her.
+
+Jeremy: Always the marrying with you, isn't it? Super Hans!
+
+Super Hans: Jez, man.
+
+Jeremy: Wow, it is rocking out. You, OK, dude?
+
+Super Hans: Yeah, yeah. It's just, in there. Fuck, man.
+
+Jeremy: Tasty.
+
+Super Hans: Why would people want to do that shit? Why even go there?
+
+Mark: You told me it was going to be a chilled one, Jeremy. You assured me that he'd made a huge lemon meringue pie.
+
+Super Hans: I don't know what to think. I have seen through the eye of the needle. I've seen it. I've finally bloody seen it! I've pulled open the hurt locker and had a big old rummage round.
+
+Jeremy: Let's go in.
+
+Mark: Didn't you hear what he just said?
+
+Jeremy: It sounds fun.
+
+Mark: No, it doesn't. It sounds terrifying.
+
+Jeremy: Whatever, let's get in there!
+
+Super Hans: It's the heart of darkness, Jez. It's the fucking dirt.
+
+Mark: I don't want to go into the heart of darkness.
+
+Jeremy: Come on, dude! Sometimes you've gotta flip the switch, lift the rock and look what's underneath, cause it's not always woodlice.
+
+Mark: Look, if that party is too much for Hans, the, excuse me, Hans, the crack-addled maniac. I'm pretty confident it'll be too much for me. Hans, is Dobby in there, do you know?
+
+Super Hans: She swung by, but she couldn't hack the hate. I think she pissed off to Big Suze's.
+
+Mark: Bloody hell.
+
+Super Hans: I'm going to write this place off. Send someone in there tomorrow with some disinfectant and a flamethrower. I got me sleeping bag, I don't want to know.
+
+Mark: How was it?
+
+Jeremy: Fine. Let's go.
+
+Mark: What?
+
+Jeremy: Look, I don't want to talk about it, alright? I just want a cup of tea and some soda bread and sit-down somewhere quiet.
+
+Mark: What's going on in there? Are they doing it?
+
+Jeremy: Yes, Mark, that's right. They're "doing it". You really have no imagination whatsoever, do you?
+
+Mark: Well, what are they doing, then?
+
+Jeremy: Dude, don't worry about them, because they sure as hell aren't worrying about you. Let's just go. Hans?
+
+Super Hans: Yep! Fuck, yeah. Let's go.
+
+Mark: Big Suze's?
+
+Super Hans: I don't mind where, long as it's safe. I just want to be in a controlled environment. Have a coke and a tuna sandwich. Just mong out to some Snow Patrol.
+
+Mark: (Great. Super Hans in the sidecar.)
+
+Jeremy: Who's the chick?
+
+Super Hans: That's no a chick, man. That's the love of my life.
+
+Jeremy: Wow. What does she?
+
+Super Hans: I don't know much about her. She don't speak English. We speak the language of love. And a tiny little bit of German.
+
+Jeremy: Right.
+
+Super Hans: I tell you, man, she is the one. I'd take a bullet for her. I'd take a bullet up the 'arris for her.
+
+Jeremy: Oh, that's nice.
+
+Jeremy: I'd take a fucking truncheon up the 'arris for this one. Or an umbrella. I would open an umbrella up inside my 'arris for this one.
+
+Mark: Hans, we get the message. There's probably no need to list all the things you'd put up bottom for your girlfriend. (Can't believe he's actually moving out. I'm going to be an unemployed single mother stuck in the flat, eating Frosties from a salad bowl, until I die from loneliness. And two weeks later they break down the door to find Ian sucking on my cold, dead teats.)
+
+Jeremy: Hey, Mark. I think Super Hans' girlfriend fancies me.
+
+Mark: Why? Because you've got your poonani jeans on?
+
+Jeremy: In the fried chicken place, she bit off half a chicken drummer and then gave the rest to me.
+
+Mark: Right. So?
+
+Jeremy: The symbolism? The drummer's my dick.
+
+Mark: Look, just because, for some reason, you associate a chicken drumstick with your penis, doesn't mean that anyone was flirting with you.
+
+Jeremy: She definitely was.
+
+Mark: She gave you some food! When you sneak chunks of my Cathedral City cheddar, is that you taking slices off my dick? So, listen. I'm going to ask Dobby to move in with me.
+
+Jeremy: I'm sorry?
+
+Mark: I've been thinking and I need to make the gesture. And you know, maybe this is the kick up the ass we both need. I could turn your room into an office. Finally nail Business Secrets Of The Pharaohs.
+
+Jeremy: Right. OK, man. Yeah. Good on you. Because, obviously, we've always been amazing mates, but, also a bit like lead weights dragging each other down?
+
+Mark: Exactly. Living together, it's been like eating a vast portion of chips. Very comforting, but also there's this lurking sense you're killing yourself. Right?
+
+Jeremy: Too right. We're moving on! Eh! Eh!
+
+Mark: Eh. Eh.
+
+Jeremy: (Yeah, Dobby can watch the History Channel with him and pretend to know the difference between all the old-time black-and-white dudes.)
+
+Mark: (Good luck, Zahra. I hope you know how to add salt to your dishwasher, because Jeremy will never, ever, ever be helping you.) What should I do if Dobby says no about moving in?
+
+Jeremy: Don't take no for an answer, dude.
+
+Super Hans: You want the knack, Mark, with women?
+
+Mark: Well yes, I suppose I do.
+
+Super Hans: Want the knack, get smack.
+
+Mark: Smack?
+
+Super Hans: Get smacked out of it, then you'll get the ladies.
+
+Mark: Really?
+
+Super Hans: Maybe.
+
+Mark: Right? I'm not sure I--
+
+Super Hans: Yeah, I just love smack. Probably not the right man to ask. Anyway, I'm out the game now. When I first set eyes on this one, it was like my first joint, like my first Bowie track, like my first Ruth Rendell. I just knew. We both did, didn't we, sweetheart? Yeah.
+
+Jeremy: (Yep, she fancies me. I knew it.)
+
+Mark: (Huh! He thinks he's Romeo. He's not. He's an armrest.)
+
+Jeremy: I told you, Yoko's hot for me.
+
+Mark: That was a balancing hand, not an erotic hand.
+
+Jeremy: I've pulled the balancing hand a million times. She could have put that hand anywhere and yet it ends up inches from my Dirty Harry. Coincidence?
+
+Mark: Yes.
+
+Mark: (If we're going to name his cock after a Clint Eastwood film, it's The Unforgiven.)
+
+Jeremy: I do feel a bit weird about this. Big Suze has invited everyone except us. You know why? It's cause I sent her those objects.
+
+Mark: It's fine, Jeremy. Everyone sends an ex the odd object. It's a natural part of breaking up.
+
+Big Suze: Mark? Jeremy? Super Hans? And a woman? You're all here? Gosh. Have you come straight from the harbor?
+
+Mark: It's fancy dress.
+
+Big Suze: How fancy. And Jeremy, do you want to pick up any of those Plasticine models you sent of you and I doing such-and-such?
+
+Jeremy: Yeah, sorry about that, Suze. I was feeling very, look, if you like, we can all just--
+
+Big Suze: No, no. You must come in for a bit. Oh, and look, you've brought us some almost champagne. I'll tell you what, I'll put it there, and if, for any reason, we don't get around to drinking it tonight, you can take it back with you! Yes?
+
+Super Hans: Right, Suze, I need a smoke-out. Want to watch me roll up a four-skin?
+
+Big Suze: I'll tell you where you might like it Hans, out in the garden.
+
+Mark: Suze, do you know, is Dobby here?
+
+Big Suze: Hmm, not sure. There are an awful lot of, what I'm sure you won't mind me calling, "your types" here! So. But listen, since you've both been so wonderfully clever and made it here without an invitation card or anything, would you mind being total stars and helping out? Is that all right? So that's for you. And yes? Listen, once you've done a couple of rounds, please feel free to sit down and have a very quick drink. OK? Thanks.
+
+Mark: (OK, Dobby. I'm going to find you and I'm going to feed you.)
+
+Jeremy: (I was never any good as Suze's boyfriend. I should have been her butler all along.)
+
+Party Guest: Are you guys the turds in the punch bowl?
+
+Mark: I'm sorry?
+
+Party Guest: I heard a couple of wetbacks had snuck in?
+
+Jeremy: Yeah, that's probably us. (Hello. She's looking at me. Maybe I should. Why not? Zahra hasn't phoned, texted or e-mailed for two hours. She's basically instructing me to have sex with a random woman.)
+
+Mark: (Where's Dobby? You aren't Dobby. You aren't Dobby. Even you aren't Dobby.)
+
+Party Guest: Thought I'd bagged the trainspotter in the red coat with the nice norks.
+
+Mark: (Dobby?)
+
+Party Guest: She called me a trouserhead and fucked off to some amazing party.
+
+Mark: (Hello. A lead.)
+
+Big Suze: What, the Crofton Road do? A few of Alan's hangers-on have gone to that. Good riddance.
+
+Mark: (Of course. Gerard's party. I've tracked her down, like Bin Laden in his cave. Now I can move in for the grisly kill!)
+
+Jeremy: (OK, let's crank up the flirt-a-thon, using a language I think she'll understand. Yoko oh-no? Or Yoko oh-yes?! Mm-hm. OK. Let's see if I can move it up a level. My hands are speaking sexy Esperanto. Hold on. Zahra! Oh, shit, it's the love of my life.) Hey, Zahra.
+
+Big Suze: Oh Mark, could you get that?
+
+Mark: (Fuck you.) Of course!
+
+Big Suze: Great. Thanks.
+
+Mark: (Sure, I'll get it. But the serfs are revolting. I'm storming out of the winter palace like the looniest Bolshevik in Petrograd!)
+
+Alan: Mark?
+
+Mark: (Oh, shit.)
+
+Alan: Of course. Went to get some more booze.
+
+Mark: We got waylaid, Alan. We thought we saw a badger and--
+
+Alan: It's OK, Mark. It's fine. I admit defeat. Suze wins, Ok? What?
+
+Mark: Isn't it like kryptonite? Won't it kill you?
+
+Alan: I'm not going to drink it, Mark. I'll just take a sniff, for old times' sake. More fool you, asshole! Suze.
+
+Jeremy: OK, let's roll. I just spoke to Zahra. Ben tried it on with her. We're gonna pick her up. I need to take her somewhere cool.
+
+Mark: I think I have just the place.
+
+Super Hans: Right, let's do one. Some bloke just asked Yoko for her number and I pushed a fucking crayfish up his snoz.
+
+Party Guest: Hmm. Is there any more tartare sauce?
+
+Jeremy: Oh, I'm sorry. I'm afraid I've left it all in George Osborne's ball-sack. Tell you what, why don't you nip upstairs, wank him off and dip it in that? Let's go before we get fired.
+
+Zahra: So Ben, took me to this cloakroom to wait for the Time Out guy, and we waited for ages. And then Ben, tries it on with me!
+
+Jeremy: Oh, the shit!
+
+Zahra: I'm so pissed off. Cause now, the Time Out guy's gonna arrive in the cloakroom and I'm not gonna be there.
+
+Jeremy: (Would've been a fucking long wait.)
+
+Super Hans: This is it?
+
+Mark: We actually heard a rumor that The Monkees might be playing. Isn't that right, Jeremy?
+
+Jeremy: Gorillaz, Mark. Gorillaz. Not The Monkees. Jesus!
+
+Raymond: Ticket?
+
+Mark: Five tickets, please.
+
+Gerrard: Hello.
+
+Mark: Gerard.
+
+Gerrard: I'm afraid tickets are only available in advance.
+
+Super Hans: For fuck's sake, Gandalf. It's not exactly the Viper Room.
+
+Gerrard: This is a private party for live-action role-players and affiliates of the International Fantasy Gaming Society.
+
+Mark: Come on, Gerard, it's me!
+
+Gerrard: I wish I could help, but I can't.
+
+Raymond: It's fine by me.
+
+Mark: (It's fine by him.)
+
+Gerrard: My hands are tied. Close the gate, Raymond.
+
+Mark: (The sickly prince has locked Dobby in his castle and the gate's guarded by his troll.)
+
+Jeremy: How far down does this go, do you think? Can't be very far.
+
+Mark: (She's here!) Dobby!
+
+Zahra: Maybe we should just accept defeat. Resign ourselves to a bit of Jools Holland
+
+Jeremy: No! Not the Hootenanny. Never the Hootenanny. We're better than that. We are going to this party! Come on, Mark. Scrabble. Help me scrabble. It's not long till the bongs!
+
+Mark: These are surprisingly effective sort of spade-scrapers, aren't they?
+
+Jeremy: I know! Hey, Zahra, try and find some tarpaulin or some rags to wrap yourself up in for when you want to scramble under.
+
+Zahra: Do you really think Martin Amis is going to be here, Jez?
+
+Jeremy: He might pop in. That's what I heard. He might pop in. (Shit. Oh no. She's finger-blabbing. Her hands are singing like a canary.)
+
+Dobby: Mark? What the hell are you doing?
+
+Mark: Er, just just tunneling in.
+
+Dobby: You been following me?
+
+Mark: Tracking and digging. Like a faithful hound! (I'm burying my dignity in this small hole.)
+
+Dobby: Do you want a hand?
+
+Mark: (Oh, my God, she's smiling! She's giving me a hand. She's not shooting me with a sniper rifle. She's helping me tunnel to freedom and start a new life in the West!)
+
+Gerrard: Stop! Cease and desist! You stay where you belong.
+
+Jeremy: Oh, don't be a dick!
+
+Dobby: Gerard, let him in.
+
+Gerrard: Hey!
+
+Super Hans: Oi, Jez, what the fuck? Yoko says you were giving it all that at Big Suze's.
+
+Zahra: What, Jeremy? Were you?
+
+Jeremy: God, no. It wasn't sex, you know, it was just sexy hand signals.
+
+Zahra: Why were you giving her sexy hand signals?
+
+Jeremy: I, it was all a misunderstanding. I was in the kitchen, and I might have done a like that, for "OK" yeah, and then there were lots of little sausages around, so maybe I put the sausage in the "OK" to ask, "Would you like to put a sausage in your mouth?"
+
+Super Hans: You mean, see if she wanted to put a sausage in her mouth, and then take it out, then put it back in again!
+
+Jeremy: Yeah.
+
+Super Hans: You know how I feel about her. You're gonna fucking pay for this!
+
+Jeremy: Look, it's not my fault she doesn't speak English.
+
+Super Hans: Fuck!
+
+Jeremy: This kind of thing probably happens the whole time at the UN!
+
+Zahra: See you later, Jeremy.
+
+Jeremy: But what about the bongs? What about the love nest? We're still OK for the love nest, yeah?
+
+Zahra: It's not gonna happen. It's a no.
+
+Jeremy: (Oh, fuck, she's gone. My true love. My housing association!)
+
+Mark: Look Dobby, I know tonight I've been a real dick-splash. (Dick-splash? It's not 1989.) But I've had this mad idea, and I don't know, but I just wondered, whether we might have a real mad one, (you, me, and Noel Gallagher.) if you, God I feel stupid even saying this, but moved in with me?
+
+Dobby: What, you want to put your manimal in my Flanimal?
+
+Mark: Yes, I do. On a long-term basis. (Here we go. She's gonna rip out my heart like in Temple Of Doom.)
+
+Dobby: Fuck it. All right!
+
+Mark: (She said yes! I'm moving in with Dobby. I'm king of the world! Must get some new towels.)
+
+Jeremy: (Standing in front of 1,000 glory holes and no-one but Raymond to suck me off.)
+
+Mark: Jez, really not that great in here, man. Are you all right? Where's Zahra?
+
+Jeremy: Oh, she's gone. Yeah. I'm not gonna be moving in with her.
+
+Mark: Oh, wow. No?
+
+Jeremy: No. Did Dobby say yes?
+
+Mark: Yeah. Yeah, Dobby said yes.
+
+Jeremy: Right.
+
+Mark: Look, I'm sure we can sort something out. Make you a bit of a nest on the floor.
+
+Jeremy: Uh-huh. Yeah, I could sleep under your desk. You could put your feet on me while you write your book. Could be fun, yeah, the three of us?
+
+Mark: Yeah, right. (God, I'll never be shot of him.)
+
+Jeremy: (He doesn't want me. He wants to move on.) Although, actually, you know what it's cool. Cause there's somewhere else I could stay.
+
+Mark: Oh, yeah?
+
+Jeremy: Yeah. Yeah, I'm gonna move in with Super Hans. Yeah, I should've said. He asked me to move in with him, so everything's cool. Yeah, we're gonna have a mental blast, you know. And he's got that spare sleeping bag.
+
+Mark: Yeah? Hans's second bag? OK, well, if you're sure.
+
+Jeremy: I think it's time.
+
+Mark: If you insist.
+
+Partygoers: Ten, nine, eight
+
+Partygoers: Seven, six
+
+Mark: Look, I'd better.
+
+Partygoers: Five, four
+
+Jeremy: Yeah.
+
+Partygoers: Three, two, one Happy New Year!
+
+Dobby: Is he gonna be OK?
+
+Mark: He's gonna be fine. He's moving into Super Hans's party pad. They're gonna have the time of their lives. OK.
+
+Dobby: Why did he hit him?
+
+Mark: I think that's just a thing they do to see in the new year.
